@@ -1,4 +1,4 @@
-- 👋 Hi, My name is Oren Clark (JazzyRock1961, here). I'm trying to program/internet-program an open website for something I call 
+- 👋 Hi, My name is Oren Clark (JazzyRock1961, here). I'm trying to program/internet-program an open website for a political solution I call 
 Quorum E-Democracy for any potential "district"'s citizens/residents to use, but specifically focused here in the USA. I explain all 
 in four videos (under ten minutes) from when I ran for President in 2020 as a Declarationist: 
 https://www.youtube.com/channel/UCq7slLJPHjLRFeox00vWcmQ
